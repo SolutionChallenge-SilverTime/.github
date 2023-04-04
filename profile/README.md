@@ -1,1 +1,2 @@
-![My First Board (1)](https://user-images.githubusercontent.com/66052043/229683886-3e7c9262-5a4a-4f51-85a8-ebfa4b33ed4a.jpg)
+
+![My First Board](https://user-images.githubusercontent.com/66052043/229694861-075ce76c-c281-4d71-a4ba-7fd1ca565d65.jpg)
